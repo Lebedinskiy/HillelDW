@@ -1,3 +1,3 @@
 # HillelDW
 
-It's my dimloma word from Hillel school
+It's my diploma work from Hillel school
